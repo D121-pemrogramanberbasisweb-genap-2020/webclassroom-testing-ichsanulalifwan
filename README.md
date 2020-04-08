@@ -1,3 +1,3 @@
-Nama : 
+Nama : Ichsanul Alifwan
 
-NIM  :
+NIM  : D121181020
